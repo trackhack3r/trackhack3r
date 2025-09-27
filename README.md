@@ -43,6 +43,8 @@ are belong 2 me!" -081425
 
 ☆ i'm a semi-verbal/non-verbal so i'll barely talk unless you're one of my close friends cause i'm very introverted. although, feel free to whisper to me if you love one of my ponies! i will gladly appreciate it ^^
 
+☆ i don't roleplay in PT unless it's with my close friends but usually it's only for fun.
+
 ☆ i don't mind if you guys do some c+h with me and please do c+h ships with me as well (especially 77noli and pizzaburger if i'm on my 007n7 skins.) non-007n7 ships are also allowed to c+h with me if i have a pony that you ship with a pony you have.
 
 ☆ i'm a very sensitive person so pls make sure to interact with extreme caution to me and i feel very uncomfortable if you're asking me some personal things especially if i don't know you that much pls do not do that!
@@ -81,6 +83,8 @@ are belong 2 me!" -081425
 ☆ please do not ever copy or steal my skins and style on PT! i made all the skins myself unless i say that it's a tut skin and pls do not take inspo without my permission but, if you are a close friend of mine, i wouldn't mind letting you take inspo of my skins/style unless you ask for some permission.
 
 ☆ if i have iwec/dniup on my name that means i'm in a bad mood or my anxiety is rising especially if there are bad things that happened irl. i'm usually afk at times.
+
+☆ i usually don't roleplay so at times you'll see me having rpdni on my name mostly because i never roleplay at all
 
 </details>
 
