@@ -41,9 +41,9 @@ are belong 2 me!" -081425
 
 ![12603](https://github.com/user-attachments/assets/e5d0be08-bdca-47dc-9973-1eb67e2218e3)
 
-☆ i'm a semi-verbal/non-verbal so i'll barely talk unless you're one of my close friends cause i'm very introverted
+☆ i'm a semi-verbal/non-verbal so i'll barely talk unless you're one of my close friends cause i'm very introverted. although, feel free to whisper to me if you love one of my ponies! i will gladly appreciate it ^^
 
-☆ i don't mind if you guys do some c+h with me and please do c+h ships with me as well (especially 77noli and pizzaburger if i'm on my 007n7 skins.) non-007n7 ships are also allowed to c+h with me if i have a forsaken pony that you ship with a forsaken pony you have.
+☆ i don't mind if you guys do some c+h with me and please do c+h ships with me as well (especially 77noli and pizzaburger if i'm on my 007n7 skins.) non-007n7 ships are also allowed to c+h with me if i have a pony that you ship with a pony you have.
 
 ☆ i'm a very sensitive person so pls make sure to interact with extreme caution to me and i feel very uncomfortable if you're asking me some personal things especially if i don't know you that much pls do not do that!
 
