@@ -10,7 +10,7 @@ are belong 2 me!" -081425
 ![12656](https://github.com/user-attachments/assets/278f3d69-b4ab-488a-a387-c4caf91be843)
 
 
-<p align="center">Oh hi! it seems like you have stumbled upon my account! pls read everything below before interacting with me on PT and following my git! ☆(ﾉ◕ヮ◕)ﾉ*
+<p align="center">Oh hi! It seems like you have stumbled upon my account! pls read everything below before interacting with me on PT and following my git! ☆(ﾉ◕ヮ◕)ﾉ*
   
 <details>
 
