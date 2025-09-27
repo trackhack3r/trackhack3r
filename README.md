@@ -23,7 +23,7 @@ are belong 2 me!" -081425
 
 ☆ my pronouns are she/her but i don't mind being being called as they/them too (cause i usually use alot of male characters as my ponies in PT.) 
 
-☆ i am an artist/writer who's over 18 as well and i usually draw original characters most entirely.
+☆ i am an artist/writer who's over 18 as well and i usually draw original characters most entirely. also i'm a straight ally, i fully support lgbtq!!
 
 ☆ i heavily kin 007n7 from forsaken. i'm also a yumejoshi (non-sharing mostly) and i also love canon x oc.
 
@@ -41,10 +41,43 @@ are belong 2 me!" -081425
 
 ☆ i'm a semi-verbal/non-verbal so i'll barely talk unless you're one of my close friends cause i'm very introverted
 
-☆ i don't mind if you guys do some c+h with me and please do c+h ships with me as well (especially 77noli and pizzaburger)
+☆ i don't mind if you guys do some c+h with me and please do c+h ships with me as well (especially 77noli and pizzaburger if i'm on my 007n7 skins.) non-007n7 ships are also allowed to c+h with me if i have a forsaken pony that you ship with a forsaken pony you have.
 
 ☆ i'm a very sensitive person so pls make sure to interact with extreme caution to me and i feel very uncomfortable if you're asking me some personal things especially if i don't know you that much pls do not do that!
 
 </details>
 
 ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
+
+<details>
+  
+<summary> ★ do not interact ★ </summary>
+
+![12604](https://github.com/user-attachments/assets/44647ccb-a902-40c7-8c17-8b7bc92baead)
+
+☆ if you fit the basic dni criteria.
+
+☆ if you are going to harass me or my friends for no damn reason.
+
+☆ if you ship something that's problematic (especially c00lkidd and 007n7 from forsaken).
+
+☆ if you hate oc x canon or even hate ocs in general, let people do what they want and love which makes them happy.
+
+☆ if you disrespect my ships or you're just basically a weirdo.
+
+</details>
+
+｡･:*:･ﾟ★,｡･:*:･ﾟ☆
+
+<details>
+  
+<summary> ★ things to remember ★ </summary>
+
+![12605](https://github.com/user-attachments/assets/2436830e-6df8-4de4-8cbf-3ddf1837c079)
+
+
+☆ please do not ever copy or steal my skins and style on pt! i made all the skins myself unless i say it's a tut skin and pls do not take inspo without my permission if you are a close friend of mine, i wouldn't mind letting you take inspo of my skins/style unless you ask for some permission.
+
+☆ if i have iwec/dniup on my name that means i'm in a bad mood or my anxiety is rising especially if there are bad things that happened irl. i'm usually afk at times.
+
+</details>
