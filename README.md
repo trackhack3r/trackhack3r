@@ -78,7 +78,7 @@ are belong 2 me!" -081425
 ![12605](https://github.com/user-attachments/assets/2436830e-6df8-4de4-8cbf-3ddf1837c079)
 
 
-☆ please do not ever copy or steal my skins and style on pt! i made all the skins myself unless i say it's a tut skin and pls do not take inspo without my permission but,if you are a close friend of mine, i wouldn't mind letting you take inspo of my skins/style unless you ask for some permission.
+☆ please do not ever copy or steal my skins and style on PT! i made all the skins myself unless i say that it's a tut skin and pls do not take inspo without my permission but,if you are a close friend of mine, i wouldn't mind letting you take inspo of my skins/style unless you ask for some permission.
 
 ☆ if i have iwec/dniup on my name that means i'm in a bad mood or my anxiety is rising especially if there are bad things that happened irl. i'm usually afk at times.
 
