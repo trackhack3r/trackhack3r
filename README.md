@@ -29,6 +29,8 @@ are belong 2 me!" -081425
 
 ☆ some of the fandoms i'm also in other than forsaken are marvel, twisted wonderland, block tales, attack on titan, epic the musical , stranger things , genshin and bbc sherlock.
 
+☆ my username in roblox is [ShadowQueen2994](https://www.roblox.com/users/254544580/profile) feel free to add me if you want!
+
 </details>
 
 ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
@@ -81,3 +83,12 @@ are belong 2 me!" -081425
 ☆ if i have iwec/dniup on my name that means i'm in a bad mood or my anxiety is rising especially if there are bad things that happened irl. i'm usually afk at times.
 
 </details>
+
+<p align="center"> ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
+  
+![12655](https://github.com/user-attachments/assets/48827c86-c218-46d6-acfe-8c30ba7a9785)
+
+```
+"Have a Good Day Everyone!
+Bye!!"
+```
