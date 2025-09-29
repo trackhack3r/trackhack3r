@@ -23,7 +23,7 @@ are belong 2 me!" -081425
 
 ☆ my pronouns are she/her but i don't mind being being called as they/them too (cause i usually use alot of male characters as my ponies in PT.) 
 
-☆ i'm a filo so you'll see speak in my native language sometimes. also i'm an infj
+☆ i'm a filo so you'll see me speak in my native language sometimes. also i'm an infj
 
 ☆ i am an artist/writer who's over 18 as well and i usually draw original characters most entirely. also i'm a straight ally, i fully support lgbtq!!
 
