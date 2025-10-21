@@ -19,7 +19,7 @@ are belong 2 me!" -081425
 ![12602](https://github.com/user-attachments/assets/4f16b8cf-dc67-412a-958f-16e7024a1994)
 
 
-☆ i usually go by the name, mari but you can also call me n7 if you want! you will usually see me on the forsaken area in my 007n7 skins with my close friends: [cas](https://github.com/rainbowmeds) , [zep](https://github.com/Zepphyrite) , and [shads](https://github.com/thefakecultist) ✨
+☆ i usually go by the name, mari but you can also call me n7 if you want! you will usually see me on the forsaken area in my 007n7 skins with my close friends: [cas](https://github.com/rainbowmeds) , [zep](https://github.com/Zepphyrite) , and [shads](https://github.com/thefragilecultist) ✨
 
 ☆ my pronouns are she/her but i don't mind being being called as they/them too (cause i usually use alot of male characters as my ponies in PT.) 
 
