@@ -21,7 +21,7 @@ are belong 2 me!" -081425
 
 ☆ i usually go by the name, mari but you can also call me n7 if you want! you will usually see me on the forsaken area in my 007n7 skins with my close friends: [cas](https://github.com/rainbowmeds) , [zep](https://github.com/Zepphyrite) , and [shads](https://github.com/thefragilecultist) ✨
 
-☆ my pronouns are she/her but i don't mind being being called as they/them too (cause i usually use alot of male characters as my ponies in PT.) 
+☆ my pronouns are she/her but i don't mind being called as they/them too (cause i usually use alot of male characters as my ponies in PT.) 
 
 ☆ i'm a filo so you'll see me speak in my native language sometimes. also i'm an infj
 
